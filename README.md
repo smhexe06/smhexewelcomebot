@@ -1,0 +1,2 @@
+# smhexewelcomebot
+SMH.EXE BOTUDUR İZİNSİZ KULLANILAMAZ
